@@ -2,3 +2,4 @@
 
 #SolanaBot #PumpFunBot #CryptoBot #PumpAndDump #SolanaCrypto #CryptoTrading #PumpFun #CryptoInvesting #BlockchainTech #SolanaInvesting #PumpYourPortfolio #CryptoTools #CryptoProfit"
 
+![cap](https://github.com/user-attachments/assets/c32b5f68-d51e-4980-b22c-a5306d16b238)
